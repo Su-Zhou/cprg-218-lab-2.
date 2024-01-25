@@ -9,6 +9,7 @@
     - [Grilled Chicken Sandwich](#grilled-chicken-sandwich)
 - [Desserts](#desserts)
     - [Chocolate Chip Cookies](#chocolate-chip-cookies)
+    - [Hong Kong Style Egg Tarts] (#hong-kong-style-egg-tarts)
 
 ## Appetizers
 ### Spinach and Artichoke Dip
@@ -119,3 +120,32 @@ Instructions:
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Let them sit in the pan for around 2 minutes. 
 9. Transfer onto cooling rack.
+
+### Hong Kong Style Egg Tarts
+
+Ingredients:
+- 2 cups of all purpose flour
+- 1/8 tsp salt
+- 12 tbsp unsalted butter, slightly softened
+- 2 tablespoons cold water
+- 1/2 cup granulated sugar
+- 1 cup hot water
+- 1/2 cup evaporated milk, room temperature
+- 3 large eggs, room temperature
+- 1 tsp vanilla extract
+
+Instructions:
+1. Combine flour and salt into a bowl.
+2. Cut the room temperature butter into small cubes and and into the bowl.
+3. Add 2 tbsp of cold water and bring the dough together with your hands.
+4. Rest the dough in the refrigerator after for 20 minutes after wrapping it in plastic.
+5. On a floured surface, roll the dought into 6x15 inch rectangles.
+6. Fold the top third of dough down to th center and then the bottom third.
+7. Turn the dough a quarter to the right or left and roll out a 6x15 inch rectangle again.
+8. Continue folding before you cover it and have it rest for a hour.
+9. For the filling, dissolve the 1 cup sugar into hot water then wisk evaporated milk, eggs and vanilla together.
+10. Strain through a fine meshed strainer in a large pitcher.
+11. Preheat the over to 375°F (190°C).
+12. Roll out 0.2 inch/5mm thick pieces of the dough into 4 inch circles that can fit into a mini tart tin, leaving a bit going over.
+13. With the filling, fill the tart shells about 3 quarters full and then transfer the pan into the oven to bake for 30 minutes.
+14. Take out the tarts and allow it to cool for 10 minute.
