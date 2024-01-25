@@ -95,21 +95,23 @@ Instructions:
 Ingredients:
 - 2 1/4 cups all-purpose flour
 - 1 tsp baking soda
+- 1 tsp badking powder
 - 1 tsp salt
 - 1 cup unsalted butter, softened
-- 3/4 cup white sugar
+- 3/4 cup granulated sugar
 - 3/4 cup brown sugar
-- 2 eggs
-- 2 tsp vanilla extract
-- 2 cups semisweet chocolate chips
+- 2 large eggs
+- 3 tsp vanilla extract
+- 3 cups chocolate chips
 
 Instructions:
-1. Preheat oven to 375°F (190°C).
-2. Combine flour, baking soda, and salt in a bowl.
-3. Cream together butter, white sugar, and brown sugar until smooth.
+1. Preheat oven to 375°F (190°C) and line baking sheets with parchment paper for later. 
+2. Combine flour, baking soda, baking soda and salt in a bowl.
+3. Cream together the butter and the sugars until it all combined.
 4. Beat in eggs one at a time, then stir in vanilla.
 5. Gradually blend in the dry ingredients.
 6. Stir in chocolate chips.
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
-9. Cool on wire racks.
+9. Let them sit in the pan for around 2 minutes. 
+9. Transfer onto cooling rack.
