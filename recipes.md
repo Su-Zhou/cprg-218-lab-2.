@@ -10,6 +10,11 @@
 - [Desserts](#desserts)
     - [Chocolate Chip Cookies](#chocolate-chip-cookies)
     - [Hong Kong Style Egg Tarts] (#hong-kong-style-egg-tarts)
+- [Favourites](#favourites)
+    - [Chinese Steammed Eggs](#chinese-steamed-eggs)
+    - [Cantonese Chow Mein](#cantonese-chow-mein)
+- [Drinks](#drinks)
+    - [Hong Kong Iced Tea](#hong-kong-iced-tea)
 
 ## Appetizers
 ### Spinach and Artichoke Dip
@@ -199,3 +204,22 @@ Instructions:
 7. Add more corn oil into the wok, then add the noodles. Gently move the noodles around until crsipy.
 8. Push the noodles aside in the wok then add your bean sprouts veggies and sauce. 
 9. Mix and lightly toss around. 
+
+## Drinks
+### Hong Kong Iced Tea 
+
+Ingredients: 
+- 1 bag of oolong tea
+- 2 cups of filtered boiled water 
+- 5 tbsp of dark brown sugar 
+- 6 tbsp of filtered water 
+- 1 lemon
+- Ice cubes
+
+Instructions: 
+1. Seep the oolong tea bag into 2 cups of boiled filtered water for around 10 minutes. Then let the tea cool.
+2. Combine the dark brown sugar and water until simmer so the sugar is fully  dissolved.
+3. Set aside the syrup in a cool room or in the fridge. 
+4. Scoop a handful of ice cubes into a glass and slice the lemon into slices. Add it to the glass. 
+5. Add half of the tea to the glass and half of the brown sugar syrup. 
+6. Stir to combine.  
