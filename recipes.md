@@ -9,7 +9,7 @@
     - [Grilled Chicken Sandwich](#grilled-chicken-sandwich)
 - [Desserts](#desserts)
     - [Chocolate Chip Cookies](#chocolate-chip-cookies)
-    - [Hong Kong Style Egg Tarts] (#hong-kong-style-egg-tarts)
+    - [Hong Kong Style Egg Tarts](#hong-kong-style-egg-tarts)
 - [Favourites](#favourites)
     - [Chinese Steammed Eggs](#chinese-steamed-eggs)
     - [Cantonese Chow Mein](#cantonese-chow-mein)
