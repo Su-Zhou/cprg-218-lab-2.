@@ -151,3 +151,51 @@ Instructions:
 12. Roll out 0.2 inch/5mm thick pieces of the dough into 4 inch circles that can fit into a mini tart tin, leaving a bit going over.
 13. With the filling, fill the tart shells about 3 quarters full and then transfer the pan into the oven to bake for 30 minutes.
 14. Take out the tarts and allow it to cool for 10 minute.
+
+## Favourites 
+### Chinese Steamed Eggs 
+
+Ingredints: 
+- 2 eggs
+- 1 cup warm water, temperature of around ideally 35°C to 45°C
+- 1 stalk of green onions
+- 0.25 tbsp of salt
+- 0.25 tbsp of chicken boullion 
+- 0.50 tbsp of oil, regular canola oil or sesame oil
+- 0.50 dash of white paper, to taste 
+
+Instructions: 
+1. Chop the green onions. These will be used as garnish at the end. 
+2. Boil water in a wok or a big steamer that is capable of holding a rack inside.  
+3. Crack eggs into a bowl, add salt, chicken boullion, and oil. Mix with a fork or chopsticks. 
+4. Slowly pour quarters of the warm water into the eggs and beat until bubbles foam at the top. 
+5. Continue to pour the rest of the water and mixing to continue seeing bubbles. 
+6. Pour the egg mixure into a bowl and place the bowl on the rack. Then cover the wok or steamer with a lid. 
+7. Leave the stove on high heat until the water boils again before lowering it to a simmer to allow the steam to cook the rest of the egg mixture. This should take about 10 minutes. 
+8. Once finished, remove the lid, add the greenions and white pepper to taste. 
+
+### Cantonese Chow Mein
+
+Ingredients: 
+- 12 oz Hong Kong style pan-friend noodles, unsteamed 
+- Half an onion 
+- 5 stalks of green onions
+- 4 oz of bean sprouts
+- 1 tbsp of dark soy sauce 
+- 1 tbsp light soy sauce 
+- 1 tbsp of oyster suace 
+- 2 tbsp of sugar
+- 1 tbsp of water
+- 1 tsp of sesame oil, optional
+- 3 tbsp of corn oil. 
+
+Instructions: 
+1. Boil water in a wok, steam noodles on a rack for 10 minutes, briefly dip in boiling water, drain, and fluff with chopsticks before cooling for 3 to 5 minutes. 
+2. Chop the green onions into 1.5 inch pieces and seperate the white part to the green parts.
+3. Cut the onions in half and julienne then the bean sprouts. 
+4. Mix the dark soy sauce, light soy sauce, oyster suace, sugar and water in a bowl. 
+5. Heat the wok to around 176°C to 204°C the add your corn oil. 
+6. Cook your green onion whites and onions for a minute before setting them on a plate for later. 
+7. Add more corn oil into the wok, then add the noodles. Gently move the noodles around until crsipy.
+8. Push the noodles aside in the wok then add your bean sprouts veggies and sauce. 
+9. Mix and lightly toss around. 
